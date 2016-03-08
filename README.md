@@ -1,2 +1,2 @@
 # hello-world
-stay real
+stay hungry stay fool stay real
